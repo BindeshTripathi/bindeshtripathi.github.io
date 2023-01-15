@@ -13,4 +13,4 @@ While I'm not thinking about my research work, it is most likely that I'd be fou
 If I must leave a thought for the day, I'd probably be inclined to say, although I'm still practicing, "being disciplined is decidedly difficult---but not overwhelmingly, once a habit is formed."
 
 ## Contact
-For more details, I can easily reached via my email address: btripathi@wisc.edu. 
+For more details and conversations, I can be easily reached at my email address: btripathi@wisc.edu. 
