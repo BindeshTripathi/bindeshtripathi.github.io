@@ -9,3 +9,4 @@ While some in preparation, the list of my peer-reviewed published papers may be 
 ## Spare time/hobbies
 While I'm not thinking about my research work, it is most likely that I'd be found either reading books of other genres like personal development and texts based on/inspired by real stories or around communities.
 
+For more details, I can easily reached via my email address: tripathi.physicist@gmail.com. If I must leave a thought for the day, I'd probably be inclined to say, although I'm still practicing, "being disciplined is decidedly difficult---but not overwhelmingly, once a habit formed."
