@@ -6,6 +6,6 @@ After completing an undergraduate degree in Physics and a couple of research int
 While some in preparation, the list of my peer-reviewed published papers may be found at https://orcid.org/0000-0002-4723-2170.
 
 
-# Spare time/hobbies
+## Spare time/hobbies
 While I'm not thinking about my research work, it is most likely that I'd be found either reading books of other genres like personal development and texts based on/inspired by real stories or around communities.
 
