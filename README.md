@@ -10,7 +10,7 @@ For a quick reference, the list of my peer-reviewed published papers may be foun
 While I'm not thinking about my research work, it is most likely that I'd be found either reading books of other genres like personal development and texts based on/inspired by real stories or around communities.
 
 ## A Thought
-If I must leave a thought for the day, I'd probably be inclined to say, although I'm still practicing, "being disciplined is decidedly difficult---but not overwhelmingly, once a habit formed."
+If I must leave a thought for the day, I'd probably be inclined to say, although I'm still practicing, "being disciplined is decidedly difficult---but not overwhelmingly, once a habit is formed."
 
 ## Contact
 For more details, I can easily reached via my email address: btripathi@wisc.edu. 
